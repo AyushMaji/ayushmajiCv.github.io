@@ -1,3 +1,3 @@
 # ayushmajiCv.github.io
 
-link-
+link-https://ayushmaji.github.io/ayushmajiCv.github.io/
